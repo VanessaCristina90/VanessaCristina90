@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VanessaCristina90
+ -:woman_teacher:  👋 Hi, I’m @VanessaCristina90:woman_teacher:
 - 👀 I’m interested in  aprender  diferentes liguagens de programação.
 - 🌱 I’m currently learning  diferentes linguagens de programa.
 - 💞️ I’m looking to aprender mais sobre programação para transmit esse conhecimento.
